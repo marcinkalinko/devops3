@@ -6,3 +6,4 @@ witaj gicie
 Ostatnia zmiana wersji
 
 Miało dzisiaj już nic nie być ale nie wytrzymałem.
+Kolejna akcja.
